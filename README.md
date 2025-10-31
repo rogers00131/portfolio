@@ -41,7 +41,7 @@ Co-Founder: CRE ENTERPRISE
 Business Development | Forex Trading | Political Leadership | Coaching | Writing | Technology | Entrepreneurship
 
 📍 Location: Port Harcourt, Nigeria
-📧 Email: rogersugem31.gmail.com
+📧 Email: rogersugemrogers@gmail.com
 
 🌐 Social Links: LinkedIn
  | GitHub
