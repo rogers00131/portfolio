@@ -2,7 +2,9 @@
 
 Hello there! My name is Rogers, a 19-year-old Computer Science student at the University of Port Harcourt (UniPort). I’m a passionate and ambitious young leader driven by purpose, innovation, and impact. My interests span across business, finance, technology, politics, sports, and writing — all of which shape the person I am becoming.
 
-I proudly serve as the CEO & Founder of ROGERS CORP.HOLDINGS, a company dedicated to building sustainable enterprises and empowering emerging entrepreneurs through strategic leadership and innovation. Alongside that, I am also the Co-Founder of CRE ENTERPRISE, a growing brand focused on creativity, resourcefulness, and excellence across multiple business sectors.
+I proudly serve as the CEO & Founder of ROGERS CORP.HOLDINGS, Founded on October 31, 2025, we’re a digital innovation studio dedicated to bringing ideas to life through stunning websites, engaging games, and powerful apps.
+Our mission is simple: to make technology work for you. Whether it’s designing a sleek website, developing an addictive game, or building an app that simplifies your daily tasks, we craft solutions that are smart, functional, and built to impress.
+At Rogers Corp.Holdings, coding isn’t just our job — it’s our passion. We turn imagination into innovation, and we’re here to make life easier, one line of code at a time. building sustainable enterprises and empowering emerging entrepreneurs through strategic leadership and innovation. Alongside that, I am also the Co-Founder of CRE ENTERPRISE, a growing brand focused on creativity, resourcefulness, and excellence across multiple business sectors.
 
 As a Businessman, I thrive on creating opportunities, developing partnerships, and building systems that add value to people and organizations. I believe business is not just about profit — it’s about problem-solving, innovation, and leaving a lasting legacy.
 
